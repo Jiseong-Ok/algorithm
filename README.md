@@ -1,0 +1,3 @@
+# algorithm
+
+for short code 😀
